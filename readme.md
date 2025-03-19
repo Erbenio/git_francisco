@@ -1,1 +1,0 @@
-Um dia desses eu vou te chamar pra sair :)
